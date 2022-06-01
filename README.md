@@ -4,7 +4,7 @@
 
 ## About Tales Of Androgyny
 
-Majalis is responsible for bringing [Tales of Androgyny](https://www.talesofandrogyny.com/) to us. If you have been following lewd games for a while, then you will know what to expect with this game. Tales of Androgyny have a fun style with rogue-lite elements. This game doesn’t really fit into everyone’s taste since it features a different approach. However, if you are a fan of girls with big butts and boobs, including monster girls and men with big packages, then this game is for you.
+Majalis is responsible for bringing [Tales of Androgyny](https://talesofandrogyny.com/) to us. If you have been following lewd games for a while, then you will know what to expect with this game. Tales of Androgyny have a fun style with rogue-lite elements. This game doesn’t really fit into everyone’s taste since it features a different approach. However, if you are a fan of girls with big butts and boobs, including monster girls and men with big packages, then this game is for you.
 With this game, you can expect to see a lot of boobs on your screen. If you enjoy watching erotic anime with the wildest themes behind closed doors, then Tales of Androgyny definitely tops the list. The characters are all feminine-like, but you shouldn’t underestimate their sexual drive and what’s hiding down there. Even if the game is completed, the developers are choosing to add more new features and content, which gives all the more reasons to stick around playing.
 
 ![Tales of Androgyny game](https://talesofandrogyny.com/wp-content/uploads/tales-of-androgyny-game-banner.jpg)
