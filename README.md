@@ -1,6 +1,6 @@
 **Download Tales of Androgyny for free on PC, Android and iOS!**
 
-[![Button](https://i.ibb.co/cv0JFfW/Download-Now-Button.png)](https://talesofandrogyny.com/)
+[!Play Button](https://i.ibb.co/RTH762k/play-now-button.png)](https://talesofandrogyny.com/)
 
 ## About Tales Of Androgyny
 
